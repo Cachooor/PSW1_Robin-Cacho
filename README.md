@@ -1,3 +1,3 @@
 # PSW1_Robin-Cacho
 
-Made for PSW1 in mind. Problem is something about dice
+Problem is something about dice???? (Honestly had no clue what I was supposed to do with this)
